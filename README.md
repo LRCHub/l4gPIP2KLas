@@ -1,4 +1,4 @@
-# Official髭男dism – うらみつらみきわみ
+# Official髭男dism – うらみつらみきわみ (Live)
 
 > **歌詞登録ステータス：同期歌詞あり**
 
